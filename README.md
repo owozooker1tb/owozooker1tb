@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @owozooker1tb
+- 👀 I am interested in software
+- 🌱 I am studying computer science in high school. 
+- 💞️ I want to cooperate about software
+- 📫 Discord: owozooker1tb#6224 Mail to: kaganbnk62@gmail.com
